@@ -1,4 +1,4 @@
-# 
+# new NFT Sniper for blur sniper bot | real-time-monitoring & private-RPC-nodes offers the most advanced blur sniper bot, with real-time-monitoring and private-RPC-nodes. Ideal for
 
 
 
